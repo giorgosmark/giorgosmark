@@ -28,5 +28,5 @@ I am particularly interested in applied ML for automation, robotics, engineering
 
 ## 🔗 Connect with me
 
-LinkedIn: linkedin.com/in/giorgos-markantonakis-365429124
+LinkedIn: [linkedin.com/in/giorgos-markantonakis-365429124](https://www.linkedin.com/in/giorgos-markantonakis-365429124/)
 Email: giorgosmarkadonakis@yahoo.gr
